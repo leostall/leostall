@@ -18,7 +18,7 @@ I'm a passionate **Systems Information student at PUCPR**, eager to explore and 
 
 ## 📫 How to reach me:
 - [LinkedIn](https://www.linkedin.com/in/leonardostall)
-- [Email](leonardostall28@gmail.com)
+- [Email](malito:leonardostall28@gmail.com)
 
 ## ⚡ Fun fact:
 - I'm a quick learner who loves discovering new tech trends and incorporating them into my projects. I also enjoy exploring creative outlets like music and design.
